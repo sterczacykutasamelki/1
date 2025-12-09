@@ -1,1 +1,1 @@
-https://f72.workupload.com/download/gfg8hpjzVtb
+https://0x0.st/KFtp.jar
