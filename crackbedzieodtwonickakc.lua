@@ -1,1 +1,1 @@
-https://0x0.st/KFtp.jar
+https://0x0.st/KFYy.jar
